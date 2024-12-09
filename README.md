@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **hadis.eslami73@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1qsi03VaYYP9Q7Y2zy9gu8iU089t8UHSy/view?usp=sharing](https://drive.google.com/file/d/1qsi03VaYYP9Q7Y2zy9gu8iU089t8UHSy/view?usp=sharing)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
